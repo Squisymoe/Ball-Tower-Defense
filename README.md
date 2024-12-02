@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/7e6be362-9bd3-40c2-a42a-1879f9d3be04)
+
 
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.cc/)***
 
